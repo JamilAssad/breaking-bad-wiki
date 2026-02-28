@@ -4,4 +4,10 @@ Breaking Bad gaat over Walter White, een scheikundeleraar die kanker krijgt en b
 
 Het verhaal volgt zijn transformatie van een rustige leraar naar een drugsbaron.
 
+In seizoen 2 zien we hoe Walter steeds dieper verstrikt raakt in de drugswereld.
+
 In seizoen 3 zien we de gevolgen van Walters keuzes.
+
+
+
+
